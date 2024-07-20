@@ -1,4 +1,4 @@
-# Summer_Internship_2024-21IT020
+# Summer_Internship_2024
 
 Week 1:
 
